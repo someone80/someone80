@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Dejan xrp
+- 👋 Hi, I’m Dejan Stil dekor design
 - 🌱 I'm learning about technologies like XRP, and I truly believe that through them, the world could become a better and fairer place. Every day, I explore new ideas and opportunities, even while walking or drinking coffee, because I know that every moment is an opportunity for progress and learning. I would love to learn much more about this exciting field and contribute to its development.
 - 💞️ I am open to collaborating on creative and innovative projects that bring something new and unique.
 - 📫 twiter: https://x.com/qnstil
